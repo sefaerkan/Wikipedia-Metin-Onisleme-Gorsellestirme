@@ -1,0 +1,1 @@
+# Wikipedia-Metin-Onisleme-Gorsellestirme
